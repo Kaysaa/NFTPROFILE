@@ -1,4 +1,4 @@
-# NFT PROFILE PICTURE
+# NFT PROFILE PICTURES
 
 - kaysa (1).jpg
 - kaysaa (2).jpg
